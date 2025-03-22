@@ -1,5 +1,7 @@
 Shillong Teer is a popular lottery-style game in Meghalaya, India. It is based on archery and follows a betting system that attracts many players daily. In this article, we provide the latest Shillong Teer results, game rules, how to play, and tips to improve your chances of winning.
 
+![Shillong Teer Result](https://raw.githubusercontent.com/shillongteerresult/images/refs/heads/main/Shillong%20Teer%20Result.png)
+
 
 ## **Shillong Teer Result Today**
 
