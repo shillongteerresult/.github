@@ -1,6 +1,6 @@
 Shillong Teer is a popular lottery-style game in Meghalaya, India. It is based on archery and follows a betting system that attracts many players daily. In this article, we provide the latest Shillong Teer results, game rules, how to play, and tips to improve your chances of winning.
 
-![Shillong Teer Result](https://raw.githubusercontent.com/shillongteerresult/images/refs/heads/main/Shillong%20Teer%20Result.png)
+[![Shillong Teer Result](https://raw.githubusercontent.com/shillongteerresult/images/refs/heads/main/Shillong%20Teer%20Result.png)](https://shillongteerr.com)
 
 
 ## **Shillong Teer Result Today**
@@ -9,8 +9,8 @@ Shillong Teer results are announced in two rounds each day. Below are today’s 
 
 | Round | Time | Result |
 |--------|-------|---------|
-| First Round | 3:45 PM | [Updated Daily] |
-| Second Round | 4:45 PM | [Updated Daily] |
+| First Round | 3:45 PM | **[Click Here](https://shillongteerr.com)** |
+| Second Round | 4:45 PM | **[Click Here](https://shillongteerr.com)** |
 
 *Note:* The results are updated daily. Stay connected for real-time updates.
 
